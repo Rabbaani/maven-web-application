@@ -28,7 +28,7 @@
 		Martha Halli,Opp To Madhurai Iddly House
 		Bangalore.
 		+91-9980923226
-		+91-9066462340
+		+91-9966003443
 	</span>
 </div>
 <hr>
